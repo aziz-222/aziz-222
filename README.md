@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aziz-222 - 👀 I’m interested in ...by brogrramming
+- 👋 Hi, I’m @aziz-222 - 👀 I’m interested inbrogrramming
 - 🌱 I’m currently learning ...software engineering
 - 💞️ I’m looking to collaborate on ...to collaborate with junior brogrammers
 - 📫 How to reach me ...dampoya123@gmail.com
